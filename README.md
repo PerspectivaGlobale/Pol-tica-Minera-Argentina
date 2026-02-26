@@ -1,1 +1,2 @@
-# Pol-tica-Minera-Argentina
+# Política-Minera-Argentina
+La visión certera de esa realidad desaprovechada la tuvo el general Savio que concretó, un 9 de octubre de 1941, con la promulgación de la ley 12.709 que lleva su nombre implícito. Ello dio origen a la Dirección Nacional de Fabricaciones Militares, importante. Una recapitulación de lo reseñado hasta aquí acerca de la participación de la actividad minera dentro del contexto económico nacional permite confirmar lo dicho al inicio del capítulo acerca de que, en casi todos los renglones, estamos frente a una realidad de dependencia y vulnerabilidad. 
